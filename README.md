@@ -1,1 +1,1 @@
-https://acmblocksys.github.io/blocksys2022/
+https://acmblocksys.github.io/blocksys2024/
